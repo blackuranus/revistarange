@@ -26,4 +26,4 @@ Lo invitamos a descubrir de primera mano por qué la Range Rover Sport 2024 es l
 
 ---
 
-![Range Rover Sport](https://image.shutterstock.com/image-photo/front-view-modern-black-range-600w-1846889495.jpg)
+![Range Rover Sport](range1.png)
